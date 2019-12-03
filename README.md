@@ -1,8 +1,8 @@
-My name is habibah 
+My name is  Salma (habibahs cousin/bestfriend)
 
-I'm 15 years old.
+we both are 15 years old.
 
-I was born in america
+we are 6 months apart
 
 My favorite color is blue
 
